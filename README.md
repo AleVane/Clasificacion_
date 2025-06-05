@@ -1,2 +1,0 @@
-# Números escritos a mano
-
